@@ -17,7 +17,7 @@
 
 Du kannst mich gerne erreichen über:
 
-- 📧 [berk.can.ulubas@gmail.com](mailto:berk.can.ulubas@gmx.de)
+- 📧 [berk.can.ulubas@gmx.de](mailto:berk.can.ulubas@gmx.de)
 
 
 Danke fürs Vorbeischauen! 🙃
